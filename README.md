@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Rushikesh Pawar
 
-### 🚀 B.Tech E&TC Student | App & Web Developer | Tech Innovator from India 🇮🇳
+### 🚀  App & Web Developer | Tech Innovator from India 🇮🇳
 
 **💌 Email Me 👉** [rushikeshrpawar77@gmail.com](mailto:rushikeshrpawar77@gmail.com)
 For Collaboration / Projects / Startups / Ideas 😎
